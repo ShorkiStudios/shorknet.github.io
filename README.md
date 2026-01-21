@@ -1,1 +1,1 @@
-# shorknet.github.io
+# shorknet.net
